@@ -1,0 +1,1 @@
+https://parsif.al/jlvicente/safety-in-requirements-engineering/
